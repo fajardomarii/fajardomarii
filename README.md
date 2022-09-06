@@ -2,7 +2,7 @@
 - ☺️ Olá, eu sou a Mariani Fajardo
 - 🏠 Moro na localidade de Pitanga 
 - 📘 Sou estudante do novo ensino médio
-- 🐕 Adoro animais principalmente cachoros e gatos
+- 🐕 Adoro animais principalmente cachorros e gatos
 - :computer: No meu tempo vago costumo ver algum filme ou série
 -  🎶 Amo ouvir musicas
 -  ✨ Me segue no insta @marianifajardo
